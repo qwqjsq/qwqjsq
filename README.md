@@ -4,7 +4,12 @@
 
 https://www.qwqweb.com
 
+
+
 QWQ加速器
+
 永久官網（被墻） https://www.qwqjsq.com
+
 網站啓用新地址 https://www.qwqweb.com
+
 獲取新地址的郵箱 qwqjsq@gmail.com
